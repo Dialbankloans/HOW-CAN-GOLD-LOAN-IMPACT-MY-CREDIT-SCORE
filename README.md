@@ -1,0 +1,2 @@
+# HOW-CAN-GOLD-LOAN-IMPACT-MY-CREDIT-SCORE
+We Indians are fond of gold. In addition to the fact that gold holds venture value, culturally we show a proclivity towards gold. Indeed, an investigation by the World Gold Council in 2017 uncovered that Indians' family structure is the world's biggest hoarders of gold, holding a record 23,000-24,000 tons of the valuable metal, definitely worth $800 billion. In spite of the fact that the extravagant for this metal has diminished after demonetization, gold actually holds a solid spot here. 
